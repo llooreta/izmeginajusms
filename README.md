@@ -1,0 +1,2 @@
+# izmeginajusms
+izmeginajums 1
